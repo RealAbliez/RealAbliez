@@ -1,13 +1,1 @@
-Hi I am abliez (real name is alfie if u wanna call me that)
-
-Currently programing for a roblox game called shonen siege
-
-I play lots of Rhythia
-
-Biggest 86 glazer
-
-
-discord: abliez
-
-
-If u want to contact me for anything dm me on discord.
+My name is Alfie, C formally known as Abliez. Im a hansome man with pretty blue eyes, one of my hobbies is to take pictures of night skies, only 17 years old but still wise. Rhythia is the best game and 86 is the best show, climbing and calasthenics built frame and programming im a pro. bike rides, hikes in the rain, and runs in night time.  
